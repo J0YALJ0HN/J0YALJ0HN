@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I'm currently open for Data Analyst roles<br><br>👯 I’m looking to collaborate on developing software, and data solutions<br><br>🤝 I’m looking to expand my network, feel free to follow me!
+<br><br>👯 I’m looking to collaborate on developing software, and data solutions<br><br>🤝 I’m looking to expand my network, feel free to follow me!
 
 
 ## 🌐 Socials:
